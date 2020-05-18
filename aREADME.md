@@ -1,1 +1,0 @@
-# kiniem130namngaysinhchutichHCM
